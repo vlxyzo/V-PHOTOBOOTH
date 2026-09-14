@@ -100,8 +100,10 @@ MIT License. Do whatever you want with it.
 
 Got feedback? Found a bug? Want to collab?
 
-📧 **Email:** [Here](mailto:liabeyourgf@gmail.com)
-📱 **Instagram:** [@vlxyzoo](https://www.instagram.com/vlxyzoo)  
+📧 **Email:** [Here as a Helper](mailto:liabeyourgf@gmail.com)
+
+📱 **Instagram:** [@vlxyzoo](https://www.instagram.com/vlxyzoo)
+
 💬 **Telegram:** [Join the channel](https://t.me/vlxzo)
 
 ---
