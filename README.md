@@ -96,14 +96,13 @@ MIT License. Do whatever you want with it.
 
 ---
 
-**Made by Kenzo** • 2026
+**Made by Velix** • 2026
 
 Got feedback? Found a bug? Want to collab?
 
 📧 **Email:** nxtzyrex@gmail.com  
-📱 **Instagram:** [@knzx.jpg](https://www.instagram.com/knzx.jpg)  
-💬 **WhatsApp:** [Join the channel](https://whatsapp.com/channel/0029Vb7adkSAojYxeMA7oU3v)  
-❤️ **Support:** [Buy me a coffee](https://saweria.co/itsmekenzz)
+📱 **Instagram:** [@vlxyzoo](https://www.instagram.com/vlxyzoo)  
+💬 **Telegram:** [Join the channel](https://t.me/vlxzo)
 
 ---
 
